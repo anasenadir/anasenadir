@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **Anasenadir2001@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1Ezxx_Sn4l1Rrhq6eZjBe2KqosVaUsYKC/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1mV-dm-1pZKRCEbcqP-ibvH6aDAjkFAYH/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
